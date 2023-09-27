@@ -1,4 +1,4 @@
-# MY NFT FOR WEB3 PROFILES PICTURE
+# MY NFT FOR WEB3 PROFILE PICTURE
 - 0xlaisa1 (1).jpg
 - 0xlaisa1 (2).jpg
 - 0xlaisa1 (3).jpg
